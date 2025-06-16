@@ -7,10 +7,11 @@
 
 <dl>
 <dd>✰ Nonsharing Murdoc Niccals selfshipper</dd>
-<dd>✰ I usually sit around the bakery area</dd>
+<dd>✰ I usually sit around the bakery area, feel free to chat!! I love people</dd>
 <dd>✰ Absolutely hopelessly hyperfixated on Gorillaz</dd>
 <dd>✰ Most active social -> https://x.com/DOUBLEBATS</dd>
 <dd>✰ I take commissions! -> https://doublebats.carrd.co/</dd>
+<dd>✰ I like to draw and play bass guitar <3 yay <3</dd>
 </dl>
 
 ![Phase12DInterview-ezgif com-video-to-gif-converter](https://github.com/user-attachments/assets/50205769-b6e3-4fdc-b2f5-6b11e9a13037)
