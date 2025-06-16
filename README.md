@@ -1,11 +1,11 @@
 ## Asher/Mike ✰ 22 ✰  They/He/She ✰ https://murdocfucker.straw.page/
-
-✰ Nonsharing Murdoc Niccals selfshipper
-✰ I usually sit around the bakery area
-✰ Absolutely hopelessly hyperfixated on Gorillaz
-✰ Most active social -> https://x.com/DOUBLEBATS
-✰ I take commissions! -> https://doublebats.carrd.co/
-
+<dl>
+<dd>✰ Nonsharing Murdoc Niccals selfshipper</dd>
+<dd>✰ I usually sit around the bakery area</dd>
+<dd>✰ Absolutely hopelessly hyperfixated on Gorillaz</dd>
+<dd>✰ Most active social -> https://x.com/DOUBLEBATS</dd>
+<dd>✰ I take commissions! -> https://doublebats.carrd.co/</dd>
+</dl>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wkvh2wqq0d7pd6hxmkb29c02v&cover_image=true&theme=default&show_offline=false&background_color=000000&interchange=false&bar_color=9f5050&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=wkvh2wqq0d7pd6hxmkb29c02v&redirect=true)
 
