@@ -1,4 +1,4 @@
-## Asher/Mike ✰ 22 ✰  They/He/She ✰ https://murdocfucker.straw.page/
+## Mikey ✰ 23 ✰  They/He ✰ https://murdocfucker.straw.page/
 
 
 
@@ -7,19 +7,17 @@
 
 <dl>
 <dd>✰ Nonsharing Murdoc Niccals selfshipper</dd>
-<dd>✰ I usually sit around the bakery area, feel free to chat!! I love people</dd>
-<dd>✰ Absolutely hopelessly hyperfixated on Gorillaz</dd>
-<dd>✰ Most active social -> https://x.com/DOUBLEBATS</dd>
-<dd>✰ I like to draw and play bass guitar <3 yay <3</dd>
+<dd>✰ Autumikeymurtrick forever</dd>
+<dd>✰ I like to draw and play my bass guitar <3 yay <3</dd>
 </dl>
 
 ![Phase12DInterview-ezgif com-video-to-gif-converter](https://github.com/user-attachments/assets/50205769-b6e3-4fdc-b2f5-6b11e9a13037)
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wkvh2wqq0d7pd6hxmkb29c02v&cover_image=true&theme=default&show_offline=false&background_color=000000&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 ![opmhfod](https://github.com/user-attachments/assets/8437e148-2a16-44e7-8aac-7638d5b8bc5f)
 
-![tumblr_nnjqw6agF71sikp1no3_500-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/0bd10660-5ebc-4800-8477-dc1fafb22b1d)
+<img width="250" height="250" alt="HAPPY PRIDE" src="https://github.com/user-attachments/assets/4bac62c9-fbd9-405c-8e6b-ad9c2e1448fe" />
+<img width="250" height="200" alt="tenor" src="https://github.com/user-attachments/assets/299c4f80-2622-4918-85a9-fd922b452ca1" />
 
-![murdocThrust](https://github.com/user-attachments/assets/57260810-8550-402d-b661-b4ac5a8e1fa5)
 
 
 <!--
